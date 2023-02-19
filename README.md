@@ -8,7 +8,7 @@ I go by the nick-name 'Mango' and I'm a completely self-taught programmer. I kno
   - GLua (Garry's Mod)
    
 - ♡ Gladly accepting project opportunities.
-- ✔ Ask me about anything, I am happy to help, only if the ball is in my court!😉<br>
+- Happy to lend a hand, contact me for inquiries!<br>
 - I love spending time in nature, listening to music and talking to friends.
 
 Hit me up through Discord (Mango#3615) or Steam (https://steamcommunity.com/id/mango--_/)
