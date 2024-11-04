@@ -11,4 +11,4 @@ I go by the nickname Mango, and I'm a self-taught programmer currently learning 
 - Happy to lend a hand. Contact me for inquiries!<br>
 - I love spending time in nature, listening to music, and talking to friends.
 
-Hit me up through Discord (Mango#3615) or Steam (https://steamcommunity.com/id/mango--_/)
+For more information visit https://juicymangocode.github.io/AliceBeiderProject/
